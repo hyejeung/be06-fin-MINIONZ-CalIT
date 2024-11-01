@@ -14,8 +14,6 @@
 
 <br/>
 
-# 📆 CalIT 바로가기
-https://calit.kro.kr
 
 <br>
 
